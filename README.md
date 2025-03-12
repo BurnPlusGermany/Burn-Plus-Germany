@@ -1,5 +1,4 @@
-<h1>&nbsp;</h1>
-<p lang="en-GB"><span style="color: #202124;"><strong>➢<span style="font-family: 'Baskerville Old Face', serif;"><span style="font-size: medium;"><span style="font-size: large;"><a href="https://dinkhabar.com/burnplusgermany-buy/">VISIT OFFICIAL SITE TO BUY TODAY&rsquo;S SPECIAL OFFER!!</a></span></span></span></strong></span></p>
+<h1><span style="color: #202124;"><strong>➢<span style="font-family: 'Baskerville Old Face', serif;"><span style="font-size: medium;"><span style="font-size: large;"><a href="https://dinkhabar.com/burnplusgermany-buy/">VISIT OFFICIAL SITE TO BUY TODAY&rsquo;S SPECIAL OFFER!!</a></span></span></span></strong></span></h1>
 <p lang="en-GB">&nbsp;</p>
 <p><img src="https://lh3.googleusercontent.com/hAnbVtlzOPdjers5F2kIwAmRt6jRq5cM7H-QBJHHQzonzpArUvOG5yZ0kXWGrfafcZrNhUELBGdi_-NsqNwnxJFOTsn8pqxPhv0=w315" alt="" /></p>
 <p>&nbsp;</p>
